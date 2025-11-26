@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cybersecurity 
 - 🌱 I’m currently learning everything🤣
 - 💞️ I’m looking to collaborate on anything network and security related
-- 📫 How to reach me email : kkagboz@gmailcom
+- 📫 How to reach me email : kkagboz@gmail.com
 - 😄 Pronouns: HE👀
 - ⚡ Fun fact: ...
 
